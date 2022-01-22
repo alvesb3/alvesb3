@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @alvesb3
 - 👀 I’m interested in Websites.
 - 🌱 I’m currently learning HTML5, CSS3 and Javascript.
-- 📫 How to reach me davialvesskinny@gmail.com
+- 📫 How to reach me @alvesb3 on Instragram! 
 
 
 
